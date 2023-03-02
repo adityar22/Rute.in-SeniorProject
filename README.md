@@ -5,4 +5,4 @@ Kelompok ASMR
 <br> Ketua Kelompok: Raisa Salsabil Yusriyya - 20/456376/TK/50506
 <br> Anggota 1: Aditya Ramadhan - 20/460535/TK/51124
 <br> Anggota 2: 
-<br> Anggota 3: 
+<br> Anggota 3: Maura Yufi Septania Putri-20/463607/TK/51599

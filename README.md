@@ -2,7 +2,7 @@
 Bingung wisata kemana? Di Rute.in aja!
 
 Kelompok ASMR 
-<br> Ketua Kelompok: 
+<br> Ketua Kelompok: Raisa Salsabil Yusriyya - 20/456376/TK/50506
 <br> Anggota 1: Aditya Ramadhan - 20/460535/TK/51124
 <br> Anggota 2: 
 <br> Anggota 3: 
